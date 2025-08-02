@@ -1,7 +1,7 @@
 ### 📄 Privacy Policy – Academic Paper Dissector GPT
 
 **Effective Date:** August 1, 2025
-**Author:** Mak Moon-Kuen
+**Author:** Dr. Moon-Kuen Mak
 
 ---
 
